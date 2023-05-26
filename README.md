@@ -1,0 +1,2 @@
+# CHARTER
+MPTIA Charter
